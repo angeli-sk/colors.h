@@ -2,7 +2,7 @@
 
 To make any project WAY cooler, like 1000% plus cooler, ADD COLORS!!
 
-Contributers <3:
+Shout-out to <3:
 pde-bakk,
 epanholz
 
